@@ -1,1 +1,0 @@
-# mglyman2018.github.io
